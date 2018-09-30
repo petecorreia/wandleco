@@ -1,1 +1,1 @@
-# wandleco
+# Wandle Co.
